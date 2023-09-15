@@ -11,4 +11,4 @@
 <p> gosto muito de tẽnis, e de fazer compras,, goto de gastar mai nao porque sou pobre</p>
 
 <p> odeio vir pra escola, so venho por conta da minha mae e  porque nao quero virar gari, sou muito explosiva facilmente perco a paciencia</p>
-<p>o enzo me estressa todos os dias , poderia mata-lo mais nao posso</p>
+<p>o enzo me estressa todos os dias , poderia mata-lo mais nao posso porque nao quero ir para na febem</p>
